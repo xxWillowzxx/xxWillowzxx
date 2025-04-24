@@ -16,7 +16,7 @@
 
 <p align="left"> <a href="https://github.com/ryo-ma/github-profile-trophy"><img src="https://github-profile-trophy.vercel.app/?username=xxwillowzxx" alt="xxwillowzxx" /></a> </p>
 
-<h3 align="left">Connect with me:</h3>
+<h3 align="left">Check out my FTC team!:</h3>
 <p align="left">
 <a href="https://instagram.com/10695_minerva" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/instagram.svg" alt="10695_minerva" height="30" width="40" /></a>
 </p>
