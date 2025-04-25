@@ -9,6 +9,8 @@
 𝓘 𝓪𝓶 𝓪𝓷 * 𝓲𝓶𝓹𝓻𝓸𝓿𝓲𝓷𝓰 * 𝓯𝓾𝓵𝓵-𝓼𝓽𝓪𝓬𝓴 𝓭𝓮𝓿𝓮𝓵𝓸𝓹𝓮𝓻!
 𝐼 𝒻𝑜𝓁𝓁𝑜𝓌 𝒸𝑜𝓊𝓃𝓉𝓁𝑒𝓈𝓈 𝒽𝑜𝓊𝓇𝓈 𝓌𝑜𝓇𝓉𝒽 𝑜𝒻 𝒸𝑜𝓊𝓇𝓈𝑒𝓈, 𝓉𝒶𝓀𝑒 𝓉𝑒𝓈𝓉𝓈, 𝑒𝓉𝒸. 𝒹𝒶𝒾𝓁𝓎! 𝒫𝑒𝑜𝓅𝓁𝑒 𝒶𝓈𝓀 𝒽𝑜𝓌 𝐼 𝑔𝑜𝓉 𝒶 𝒽𝒶𝓃𝑔 𝑜𝒻 𝓉𝒽𝒾𝓈 𝓈𝓉𝓊𝒻𝒻 𝓈𝑜 𝒻𝒶𝓈𝓉, 𝒶𝓃𝒹, 𝓀𝑒𝓎 𝒶𝓃𝓈𝓌𝑒𝓇: 𝒶 𝓁𝒶𝒸𝓀 𝑜𝒻 𝓈𝓁𝑒𝑒𝓅.
 
+𝓕𝓸𝓾𝓷𝓭𝓮𝓻 𝓸𝓯 𝓑𝔂𝓽𝓮𝓜𝓮 𝓖𝓪𝓶𝓮𝓼!
+
 
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=xxwillowzxx&label=Profile%20views&color=0e75b6&style=flat" alt="xxwillowzxx" /> </p>
