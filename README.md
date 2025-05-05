@@ -18,7 +18,7 @@
 
 <p align="left"> <a href="https://github.com/ryo-ma/github-profile-trophy"><img src="https://github-profile-trophy.vercel.app/?username=xxwillowzxx" alt="xxwillowzxx" /></a> </p>
 
-<h3 align="left">𝓕𝓣𝓒 𝓽𝓮𝓪𝓶 𝓜𝓲𝓷𝓮𝓻𝓿𝓪:</h3>
+<h3 align="left">𝓕𝓣𝓒 𝓽𝓮𝓪𝓶 𝓜𝓲𝓷𝓮𝓻𝓿𝓪 - 𝐹𝑜𝓁𝓁𝑜𝓌 𝒻𝑜𝓇 𝒶 𝒹𝒾𝑔𝒾𝓉𝒶𝓁 𝒸𝑜𝑜𝓀𝒾𝑒 :</h3>
 <p align="left">
 <a href="https://instagram.com/10695_minerva" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/instagram.svg" alt="10695_minerva" height="30" width="40" /></a>
 </p>
